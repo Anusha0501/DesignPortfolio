@@ -155,8 +155,7 @@ Feel free to reach out — I’d love to collaborate!
 ## 📫 Contact
 
 - **Email:** anushasingh0501@gmail.com  
-- **LinkedIn:** (add your LinkedIn profile link here)  
-- **Portfolio (Optional):** Notion / Website link  
+- **LinkedIn:** https://www.linkedin.com/in/anusha-singh01/  
 
 ---
 
